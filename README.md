@@ -1,0 +1,2 @@
+# mindset
+abundance mindset english
